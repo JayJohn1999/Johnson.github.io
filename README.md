@@ -1,2 +1,0 @@
-# Johnson.github.io
-Portfolio
